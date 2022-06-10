@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/ozymandias9876](https://github.com/ozymandias9876)
 
-- 📝 I regularly write articles on [https://dhijoy.blogspot.com/](https://dhijoy.blogspot.com/)
+- 📝 I regularly ocassionaly write short stories on [https://dhijoy.blogspot.com/](https://dhijoy.blogspot.com/)
 
 - 📫 How to reach me **https://www.linkedin.com/in/himanshu3wari/**
 
